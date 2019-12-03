@@ -36,8 +36,12 @@ plugins:
 footer_content:
   "Copyright &copy; 2019 Ollie Palmer. Site content distributed under an
   <a href=\"https://github.com/pmarsceill/just-the-docs/tree/master/LICENSE.txt\" target=\"_blank\">MIT license</a>
-  (you are free to reuse content as you like).
-  This site uses <a href=\"https://github.com/pmarsceill/just-the-docs\" target=\"_blank\">Just the Docs</a>, a documentation theme for Jekyll."
+  (you are free to reuse content as you like). Initially generated for
+  <a href=\"https://github.com/NaNoGenMo/2019\" target=\"_blank\">NaNoGenMo 2019</a>;
+  all code to generate content and this website available on
+  <a href=\"https://github.com/olliepalmer/nanogenmo2019\" target=\"_blank\">GitHub</a>
+  This site uses <a href=\"https://github.com/pmarsceill/just-the-docs\" target=\"_blank\">Just the Docs</a>,
+  a documentation theme for Jekyll."
 
 search_enabled: true
 

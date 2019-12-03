@@ -13,3 +13,8 @@ title: Directory Directory
 <strong>Home of the directory. Look for the directory for all your directory needs!</strong>
 
 Created for NaNoGenMo 2019 by [Ollie Palmer](https://olliepalmer.com).
+
+----
+
+
+{% for post in site.pages %}<a href="{{ post.url }}">{{ post.title }}</a> {% endfor %}

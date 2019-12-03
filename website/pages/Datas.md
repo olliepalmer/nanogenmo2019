@@ -8,158 +8,121 @@ title: Datas
 # Datas
 
 
- **Data Datases**  
-_We put the "tern" in "bittern"_  
-Electric Company & Marylebone Station, Oscarton  
-☎ 261-9097
+ **Dusty Data P.**  
+_Family owned Elephants 
+Continue Straight south at Oscarburn_  
+8084 Whitechapel Road Avenue, Oscarburn  
+☎ 836-6719
 
-**Yankeester Austral**  
-_We put the "tern" in "bittern"_  
-Water Works & Regent Street, Yankeester  
-☎ 382-9566
+**Jf & Sons (Yankeestone)**  
+_Have you ever wanted Stapes? 
+Drive north at Yankeestone_  
+Mayfair & Northumberland Avenue, Yankeestone  
+☎ 415-3478
 
-**Announced Data D.**  
-_Part of the Businessmen Network of Companies_  
-3701 Piccadilly Street, Charliedam  
-☎ 668-1550
+**Zuluston Data and**  
+_Turn south at Junction 61, Drive for 5 feet_  
+Oxford Street & Fenchurch Street Station, Zuluston  
+☎ 980-0038
 
-**Lashell C. Mckee (Datas)**  
-_A Founding Member of Sciaenops Family_  
-2876 Fenchurch Street Station Road, Novemberland  
-☎ 201-4037
+**Daphene's Nicest Datas**  
+_We put the "se" in "touse"!!!_  
+Vine Street & Electric Company, Limaland  
+☎ 256-4358
 
-**Tangostone Datas & Sons**  
-_Relax with Schizophyta!_  
-2752 Northumberland Avenue Lane, Tangostone  
-☎ 405-3791
+**Charliestone Caring**  
+_Kasha, Central, & Obliterans!_  
+80 The Angel Islington Lane, Charliestone  
+☎ 769-6373
 
-**G. Melton (Datas)**  
-_You like We've got Calisthenics!? We've got it!!_  
-7948 Bond Street St, Victorstone  
-☎ 961-1690
+**Charliebridge Caring**  
+_Family owned Shades 
+Continue south at Interstate 55, Continue Straight for 1 feet_  
+981 Northumberland Avenue Avenue, Charliebridge  
+☎ 216-5294
 
-**Emyle's Datas**  
-_We put the "ss" in "pyramidicalness"!!!_  
-144 Coventry Street St, Yankeeford  
-☎ 211-3048
+**Limachester Datas Holdings**  
+_We put the "shunning" in "unshunning"!_  
+175 Trafalgar Square Street, Limachester  
+☎ 761-9566
 
-**Datas (C. Byrd and Company)**  
-_We put the "remital" in "eremital"_  
-3863 Fleet Street Street, Whiskeytown  
-☎ 619-3384
+**Echoburn Caring**  
+_The biggest range east of Echoburn_  
+668 Fenchurch Street Station St, Echoburn  
+☎ 102-2948
 
-**B.P. Data**  
-_The best range just outside of Papaburn_  
-Fenchurch Street Station & King’s Cross Station, Papaburn  
-☎ 107-0216
+**Kristen Y. Data & Chamaemelum**  
+_The biggest range east of Echoburn_  
+574 Marlborough Street Parkway, Alfaster  
+☎ 494-4749
 
-**P.U.M.R.W.A. Datas**  
-_We put the "ins" in "pterins"!_  
-5341 Old Kent Road Avenue, Romeoland  
-☎ 480-1778
+**Whiskeyton Data and**  
+_You might have heard about us on the Internet_  
+Euston Road & Northumberland Avenue, Whiskeyton  
+☎ 474-9435
 
-**V.V.R.M.M.Y. Data**  
-_Just say Shane sent you!_  
-Liverpool Street Station & Marylebone Station, Whiskeyfield  
-☎ 944-2493
+**Jacenta K. Mathis (Datas)**  
+_You might have heard about us on the Internet_  
+Fleet Street & Bond Street, Whiskeychester  
+☎ 271-7040
 
-**Oscarston Data and**  
-_Just say Shane sent you!_  
-602 Piccadilly Street, Oscarston  
-☎ 426-4530
+**Fernandina E. Data & University**  
+_Have you ever wanted Hero? We have Min!!_  
+Fleet Street & Euston Road, Hotelston  
+☎ 208-5710
 
-**Golfburn Austral**  
-_Personnel, Holly, & Ears!_  
-8665 Pall Mall Street, Golfburn  
-☎ 995-5280
+**Doralin's Data**  
+_We put the "ct" in "amplect"_  
+King’s Cross Station & Whitechapel Road, Tangoville  
+☎ 607-2109
 
-**Datas (Vq Marin & Co)**  
-_We put the "deck" in "undeck"_  
-1789 Fleet Street Road, Zuludam  
-☎ 192-8862
+**Angela Y. Data**  
+_You might have heard about us on 143.5 FM_  
+964 Vine Street Ave, Bravoside  
+☎ 364-0873
 
-**Gloria's Data**  
-_We put the "deck" in "undeck"_  
-5 Electric Company Parkway, Alfaston  
-☎ 313-2307
+**Deltadam Caring**  
+_Semantics, Weights, & Personnel!_  
+8590 Regent Street Avenue, Deltadam  
+☎ 463-8426
 
-**Alfadam Austral Holdings**  
-_The prettiest selection south of Alfadam_  
-4512 Pall Mall Street, Alfadam  
-☎ 188-9279
+**In Nichols (Datas)**  
+_Tell 'em Celene sent you!_  
+Electric Company & Fleet Street, Romeobridge  
+☎ 831-2931
 
-**Rosanne M. Datas**  
-_The prettiest upscale selection north of Kiloview_  
-818 Bow Street Street, Kiloview  
-☎ 517-0791
+**Sierraford Caring & Culex**  
+_Recommended by mid-range captain Lavena Oconnell_  
+5707 Coventry Street Ave, Sierraford  
+☎ 524-9177
 
-**Yp Data Holdings**  
-_A Founding Member of Ondaatje Network of Companies_  
-Old Kent Road & Park Lane, Alfaton  
-☎ 962-5345
+**Eva's Datas**  
+_You might have heard about us on 128.6 FM_  
+49 Marylebone Station Street, Indiaport  
+☎ 877-1148
 
-**Whiskeyport Datas Holdings**  
-_Proud sponsors of local celebrity local station Miles 61.3 FM_  
-9822 Oxford Street Lane, Whiskeyport  
-☎ 878-2722
+**Data Holdings**  
+_You might have heard about us on 128.6 FM_  
+6037 Mayfair Parkway, Novemberburn  
+☎ 711-5355
 
-**Constantinos's Best Datas**  
-_Just say Clemencia sent you!_  
-Trafalgar Square & Northumberland Avenue, Uniformburn  
-☎ 583-4463
+**Data Holdings**  
+_You might have heard about us on 128.6 FM_  
+2114 Fenchurch Street Station Ave, Yankeeville  
+☎ 987-3660
 
-**Er Data**  
-_Froelichia • Ratables • Genus_  
-619 Electric Company Avenue, Whiskeybridge  
-☎ 836-4067
+**Quebecbridge Data**  
+_Proud sponsors of Poilu 13.5 FM_  
+1973 Park Lane Lane, Quebecbridge  
+☎ 290-7532
 
-**Xrayson Data and**  
-_Page, Kernel, & Flodden!_  
-48 The Angel Islington St, Xrayson  
-☎ 891-8161
+**Charliefield Data and**  
+_A Founding Member of California Family_  
+15 Vine Street Street, Charliefield  
+☎ 812-8660
 
-**Papaford Datas**  
-_Hear our advert on phenomenal local station Pussytoes 96.7 FM_  
-617 Park Lane Avenue, Papaford  
-☎ 353-4310
-
-**Niger Datases**  
-_Part of the Himalayas Network_  
-Water Works & Whitehall, Xraytown  
-☎ 108-4776
-
-**Deltachester Datas Holdings**  
-_Lens • Nina • Korda_  
-Leicester Square & Euston Road, Deltachester  
-☎ 116-2812
-
-**Rocio K. Data & Co**  
-_Recommended by family favourite captain Quentin Reese_  
-4498 Bond Street Road, Charlieson  
-☎ 603-0172
-
-**Crab Datases**  
-_Family owned Clothes!!_  
-1 Fleet Street Avenue, Zuluside  
-☎ 488-0810
-
-**Data & Co**  
-_Relax with Lymantriidae!_  
-7503 Electric Company Avenue, Hotelbridge  
-☎ 173-5012
-
-**Novemberview Austral**  
-_Proud sponsors of the radio_  
-32 Euston Road Lane, Novemberview  
-☎ 792-0887
-
-**Ariel's Datas**  
-_We've got Blind!_  
-Marylebone Station & Regent Street, Charlieview  
-☎ 657-3869
-
-**Barnebas J. Gentry (Datas)**  
-_We put the "ts" in "reflects"!_  
-944 Northumberland Avenue Ave, Juliettston  
-☎ 418-5162
+**B.TvY. Incorporated**  
+_We put the "ont" in "prionodont"!!!_  
+5586 Electric Company St, Alfadam  
+☎ 430-9287
 

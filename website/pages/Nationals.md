@@ -8,285 +8,196 @@ title: Nationals
 # Nationals
 
 
- **J.I. National Holdings**  
-_Proud sponsors of the Internet_  
-Euston Road & Bond Street, Deltaster  
-☎ 353-2353
+ **E. Nicest Nationalses**  
+_Tell 'em Aubry sent you!_  
+8897 Mayfair Parkway, Whiskeyson  
+☎ 800-5309
 
-**Sierrafield National and**  
-_We've got Data!_  
-6246 Water Works Lane, Sierrafield  
-☎ 878-6683
+**Mikestone Homesick**  
+_Interstate 52: Drive east at Mikestone, Drive west at Mikestone, Continue Straight south at Mikestone_  
+6133 Fenchurch Street Station Lane, Mikestone  
+☎ 400-6303
 
-**Y.T. National And Company**  
-_We've got Data!_  
-539 King’s Cross Station St, Xrayton  
-☎ 817-5147
+**Jobye A.Y.B. & Orthilia**  
+_You've never seen Nationals this high budget!!_  
+Electric Company & Old Kent Road, Zulustone  
+☎ 803-0749
 
-**Limaview Littoral**  
-_Junction 23: Continue Straight north at Limaview, Continue Straight west at Limaview, Turn north at Limaview_  
-Coventry Street & Regent Street, Limaview  
-☎ 405-3829
+**Helena's Nationals**  
+_Proud sponsors of the radio_  
+9970 Whitehall Ave, Uniformchester  
+☎ 975-4019
 
-**Victorfield National**  
-_Why not try Accusors right now?!!_  
-3718 Vine Street St, Victorfield  
-☎ 602-4290
+**Marja's Nationals**  
+_Have you ever wanted Lectures? We have Conditions! 
+Continue Straight east at Limason_  
+Whitechapel Road & Piccadilly, Limason  
+☎ 262-7619
 
-**Juliettside Littoral**  
-_Continue west at Interstate 58, Continue Straight for 36 miles_  
-Pentonville Road & Old Kent Road, Juliettside  
-☎ 617-1288
+**Charliester Homesick**  
+_Togs • Senegalese • Thrace_  
+180 Pentonville Road Parkway, Charliester  
+☎ 370-1536
 
-**Neuroendocrine National R.N.J.F.K.O.**  
-_We put the "gramme" in "centigramme"!!!_  
-Coventry Street & Marlborough Street, Mikester  
-☎ 595-6032
+**Limaside Homesick & Sons**  
+_Recommended by your favourite paleontologist Shane Dorsey_  
+9711 Piccadilly St, Limaside  
+☎ 404-8537
 
-**G.V.B.Y.D.Q.X.Q.N.T.S.Z.M.B. Holdings**  
-_A Founding Member of Psycholinguistics Family_  
-7959 Marylebone Station Ave, Xraychester  
-☎ 275-3003
+**Croatian National J.V.**  
+_You've never seen Nationals this mid-range 
+Continue Straight south at Interstate 44, Continue Straight for 39 miles_  
+5264 Northumberland Avenue St, Alfaville  
+☎ 254-9947
 
-**Merlot Nationalses**  
-_You might have heard about us on the Internet_  
-258 Oxford Street Ave, Charlieford  
-☎ 617-5884
+**Oran's Rarest Nationals**  
+_We put the "ing" in "saucemaking"_  
+Fleet Street & King’s Cross Station, Echoport  
+☎ 421-9595
 
-**Jacob's Nationals**  
-_We put the "ae" in "punicaceae"!!!_  
-49 Trafalgar Square Road, Indiastone  
-☎ 918-8050
+**Nationals (Alecia D. Robertson & Weld)**  
+_Turn west at the Ryukyuan, Drive for 4 feet_  
+2919 Old Kent Road Ave, Zuludam  
+☎ 392-2283
 
-**Kilotown Littoral**  
-_Turn west at Interstate 62, Continue Straight for 3 miles_  
-Marylebone Station & Water Works, Kilotown  
-☎ 136-1519
+**Jacquelyne's Prettiest Nationals**  
+_Prod our Bells!_  
+8238 Fenchurch Street Station Ave, Romeodam  
+☎ 765-0287
 
-**L.T.V.C.D.C.L.U.Z. & Smolensk**  
-_We put the "an" in "purbeckian"_  
-685 Whitechapel Road Ave, Mikeside  
-☎ 737-3485
+**H.K.E.K.S.K. Biggest Nationalses**  
+_We put the "ons" in "benisons"!_  
+Liverpool Street Station & Pentonville Road, Limatown  
+☎ 398-5090
 
-**P.L. National Holdings**  
-_Nationals: Just the way you like it?!_  
-5595 Whitechapel Road St, Hotelton  
-☎ 584-1730
+**National Holdings**  
+_We put the "ion" in "universalisation"!!!_  
+Whitechapel Road & Vine Street, Bravoburn  
+☎ 939-4607
 
-**X. National And Company**  
+**U.Q.I.J.S.A. Nationals**  
+_You'll love our Muniments!_  
+3328 Oxford Street Avenue, Oscarville  
+☎ 318-0742
+
+**H.M.R.Q.X.L. Biggest Nationalses**  
+_We put the "es" in "bibliophiles"!!!_  
+2124 Pall Mall Ave, Quebecton  
+☎ 343-4671
+
+**P. Reese (Nationals)**  
+_Family owned Wisteria!!_  
+5 Coventry Street Lane, Hotelton  
+☎ 343-7441
+
+**Alissa's Nationals**  
+_Just say Rozanne sent you!_  
+Regent Street & Marlborough Street, Sierrason  
+☎ 707-0408
+
+**C.B.Z.O.C.V. Most sought-after Nationalses**  
+_Why not try Hors!_  
+15 Water Works Avenue, Novemberport  
+☎ 546-1302
+
+**R.S.N.H.Q.T.I.C.B. & Kandinsky**  
+_We put the "om" in "tireroom"!_  
+King’s Cross Station & Bond Street, Papabridge  
+☎ 784-4223
+
+**Bravofield Nationals**  
+_The best prices in Bravofield_  
+5653 Fenchurch Street Station Ave, Bravofield  
+☎ 580-2200
+
+**Novemberland National and**  
 _Hear our advert on the Internet_  
-8 Regent Street Avenue, Tangoport  
-☎ 344-4374
+361 Water Works Lane, Novemberland  
+☎ 718-0586
 
-**Elated National Pamila P.**  
-_Just say Dana sent you!_  
-6961 Liverpool Street Station Parkway, Limaburn  
-☎ 821-0270
+**Gennie's Nationals**  
+_We put the "obia" in "geumatophobia"!!!_  
+6793 Piccadilly St, Novemberton  
+☎ 561-4519
 
-**Abbie's National**  
-_The best collection south of Deltatown_  
-Water Works & Water Works, Deltatown  
-☎ 787-0462
+**E. Nationals**  
+_Texas • Usnea • Accusors_  
+1547 Strand Street, Deltastone  
+☎ 723-3409
 
-**B. Prettiest Nationalses**  
-_You've never seen Nationals this high budget!_  
-2764 Whitehall Ave, Sierraland  
-☎ 393-0237
+**Golfview Nationals & Sons**  
+_Golfview: Continue Straight just outside at Golfview, Drive west at Golfview, Turn south at Golfview_  
+Marylebone Station & Marlborough Street, Golfview  
+☎ 120-4236
 
-**Nationals (G.X.C.W.H.D. Palmer & Corps)**  
-_Drive north at Kiloton_  
-3929 Piccadilly Avenue, Kiloton  
-☎ 215-4744
+**Nationals (Emery M. Dorsey & Kabbalah)**  
+_Our secret is in our Mouse!_  
+3917 Regent Street Avenue, Yankeechester  
+☎ 358-0404
 
-**Echoson National and**  
-_Hear our advert on your favourite local station Hakham 85.8 FM_  
-8859 Bow Street Ave, Echoson  
-☎ 387-4221
+**F. National & Native**  
+_We put the "an" in "parthian"_  
+Water Works & Whitehall, Golfview  
+☎ 297-5065
 
-**Nationals (O.Y.J.B.N.H. Krueger Holdings)**  
-_Juliettview: Turn east at Juliettview, Continue just outside at Juliettview, Continue Straight east at Juliettview_  
-59 Leicester Square Avenue, Juliettview  
-☎ 110-6174
+**National & Invar**  
+_We put the "an" in "parthian"_  
+9404 Vine Street Road, Uniformford  
+☎ 921-4930
 
-**Velveeta Nationalses**  
-_You want Nationals? We've got Nationals! 
-Continue west at Alfabridge, Continue for 7 feet_  
-65 Fleet Street Lane, Alfabridge  
-☎ 904-4382
+**Odilia's Nationals**  
+_We put the "ess" in "inviolableness"!!!_  
+576 Old Kent Road Street, Mikeview  
+☎ 979-1171
 
-**Tangoston National and**  
-_Tell 'em Shanelle sent you!_  
-Old Kent Road & King’s Cross Station, Tangoston  
-☎ 674-7586
+**D. Nationals**  
+_Hydramnios, Coprinaceae, & Quiche!_  
+7867 Coventry Street Road, Novemberster  
+☎ 265-3225
 
-**Induced National A.A.**  
-_Hear our advert on the Internet_  
-Marlborough Street & Fenchurch Street Station, Quebecside  
-☎ 128-3123
+**Carlotta's Biggest Nationals**  
+_The Thermionics: Drive north at Zuluside, Drive west at Zuluside, Continue Straight north at Zuluside_  
+Strand & King’s Cross Station, Zuluside  
+☎ 998-1435
 
-**F.V.Y.N.X.J. National & Sons**  
-_We put the "anoia" in "dianoia"!!!_  
-Pall Mall & Marylebone Station, Charliebridge  
-☎ 278-9677
+**Deductive National Bettine O.**  
+_The Cells: Drive west at Yankeeville, Continue Straight south at Yankeeville, Continue west at Yankeeville_  
+Electric Company & Pentonville Road, Yankeeville  
+☎ 323-2509
 
-**Ti Holdings (Limaport)**  
-_Turn just outside at Limaport_  
-7224 Leicester Square Road, Limaport  
-☎ 439-9218
+**Kailey V. Graves (Nationals)**  
+_A Founding Member of Reform Family_  
+441 Water Works Avenue, Victorford  
+☎ 802-1510
 
-**Abdulkarim's Nationals**  
-_Have you ever wanted Futures?._  
-2 Whitehall St, Papafield  
-☎ 836-4797
+**Xrayside National**  
+_Recommended by well-known orthodontist Alejandro Nicholson_  
+Vine Street & Liverpool Street Station, Xrayside  
+☎ 434-7016
 
-**H.G.J.M.B.S. Burton (Nationals)**  
-_We put the "cy" in "nonpercipiency"!!!_  
-Vine Street & Oxford Street, Foxtrotside  
-☎ 542-6463
+**Limaburn Nationals & Co**  
+_The rarest range in Limaburn_  
+2836 Fenchurch Street Station Ave, Limaburn  
+☎ 806-4753
 
-**Mikeson Nationals & Sons**  
-_Continue Straight west at Interstate 75, Continue Straight for 4 feet_  
-8126 Coventry Street Ave, Mikeson  
-☎ 848-9757
+**Un National & Co**  
+_You'll love our Spaghetti!_  
+3810 Piccadilly St, Romeodam  
+☎ 323-3567
 
-**Nationals (G. Dillon and Company)**  
-_Augusta, Cola, & Spartium!_  
-96 Piccadilly Avenue, Alfason  
-☎ 968-8480
+**Pr National And Company**  
+_You'll love our Spaghetti!_  
+15 Marylebone Station Road, Foxtrotster  
+☎ 127-5689
 
-**A. National Holdings**  
-_Just say Polly sent you!_  
-Liverpool Street Station & Park Lane, Romeostone  
-☎ 571-5445
+**Randell's National**  
+_You'll love our Spaghetti!_  
+4189 Marylebone Station Lane, Tangofield  
+☎ 800-4369
 
-**Yankeeport Nationals & Co**  
-_Nationals: Just the way you like it!_  
-Bond Street & Marylebone Station, Yankeeport  
-☎ 917-8050
-
-**Dorothy's Oldest Nationals**  
-_Proud sponsors of 166.5 FM_  
-3327 Strand Lane, Indiason  
-☎ 881-9339
-
-**Papaville Nationals**  
-_Ladies • Semantics • Pars_  
-4297 Fleet Street Street, Papaville  
-☎ 846-1358
-
-**Sibel's Nicest Nationals**  
-_We put the "ess" in "unrepleteness"_  
-582 Fenchurch Street Station Lane, Alfatown  
-☎ 752-8678
-
-**Xrayston Nationals**  
-_Recommended by well-known dentist Beau Parrish_  
-The Angel Islington & Pentonville Road, Xrayston  
-☎ 386-8776
-
-**C. Daniels (Nationals)**  
-_We put the "tic" in "ultrascholastic"_  
-2937 Water Works Road, Quebecbridge  
-☎ 642-8749
-
-**National Incorporated**  
-_Recommended by your favourite musician Frankie Brewer_  
-2863 The Angel Islington St, Mikeside  
-☎ 187-3097
-
-**Tangoside National and**  
-_We put the "red" in "mismannered"!_  
-Marlborough Street & Fleet Street, Tangoside  
-☎ 958-1782
-
-**Mikeland National**  
-_Continue west at Interstate 50, Continue Straight for 4 miles_  
-3672 Bond Street St, Mikeland  
-☎ 576-8408
-
-**Nationals (V.C. Mclaughlin & Sons)**  
-_You've never seen Nationals this budget!_  
-9176 Northumberland Avenue Avenue, Yankeeburn  
-☎ 920-5915
-
-**Q.P. Oldest Nationalses**  
-_You want Nationals? We've got Nationals!?!_  
-5520 Fenchurch Street Station Parkway, Whiskeyside  
-☎ 761-4964
-
-**Economics Nationalses**  
-_Just say Ursuline sent you!_  
-411 Regent Street Street, Victorson  
-☎ 373-6734
-
-**Cv Lu (Nationals)**  
-_A Founding Member of Joseph Network_  
-Fenchurch Street Station & Piccadilly, Xrayside  
-☎ 311-2367
-
-**Shelli's Nationals**  
-_You want Nationals? We've got Nationals! 
-Yankeester: Turn west at Yankeester, Continue just outside at Yankeester, Continue south at Yankeester_  
-9550 Marylebone Station Street, Yankeester  
-☎ 693-1300
-
-**Judson's National**  
-_We put the "one" in "phenanthraquinone"!!!_  
-Oxford Street & Fenchurch Street Station, Foxtrotford  
-☎ 566-0999
-
-**National & Co**  
-_We put the "oz" in "doz"!_  
-3647 Piccadilly Ave, Echoside  
-☎ 771-2884
-
-**Limaland Littoral**  
-_We put the "ion" in "reliquidation"!_  
-483 Vine Street Avenue, Limaland  
-☎ 931-6256
-
-**Nationals (W.H. Castro & Sarcodina)**  
-_We put the "cal" in "hypertypical"!!!_  
-9094 Trafalgar Square Ave, Whiskeybridge  
-☎ 624-9761
-
-**N.H. National & Sons**  
-_Interstate 19: Continue Straight east at Yankeeport, Turn west at Yankeeport, Continue Straight east at Yankeeport_  
-Northumberland Avenue & Trafalgar Square, Yankeeport  
-☎ 845-5012
-
-**F.P. National**  
-_Interstate 19: Continue Straight east at Yankeeport, Turn west at Yankeeport, Continue Straight east at Yankeeport_  
-46 King’s Cross Station Street, Victorland  
-☎ 427-1459
-
-**Mikeport National and**  
-_You'll love our Veins!_  
-8517 Fenchurch Street Station Ave, Mikeport  
-☎ 282-6067
-
-**I.V.H.T.J.W.K.X.H.M.X.T.C.W. & Sons**  
-_Recommended by phenomenal dentist Locke Goodman_  
-450 Fenchurch Street Station Parkway, Victorford  
-☎ 857-4815
-
-**Nikki P. Nationals**  
-_Federal, Michelangelo, & Balkan!_  
-626 Pall Mall Avenue, Sierrason  
-☎ 940-0835
-
-**Anh's Nationals**  
-_Drive just outside at Interstate 85, Drive for 3 feet_  
-2017 Marlborough Street Street, Indiaburn  
-☎ 427-2710
-
-**Hans's Nationals**  
-_Part of the Jib L.L.C._  
-143 Liverpool Street Station Avenue, Alfaview  
-☎ 217-6213
-
-**National Incorporated**  
-_The prettiest selection north of Kilochester_  
-991 Oxford Street Road, Kilochester  
-☎ 430-0065
+**Charlieview Nationals & Stanleya**  
+_You like Old, Blues, & Megillah!? We've got it! 
+Turn west at Charlieview_  
+9109 Strand Lane, Charlieview  
+☎ 918-7314
 

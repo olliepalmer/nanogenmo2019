@@ -8,252 +8,251 @@ title: Kernels
 # Kernels
 
 
- **Kiliwa Kernelses**  
-_We put the "on" in "readaptation"_  
-528 Fleet Street Ave, Hotelport  
-☎ 840-9482
+ **Kernel & Co**  
+_Part of the Revolutions PLC_  
+Water Works & Trafalgar Square, Juliettston  
+☎ 930-4396
 
-**Charlieton Kernels**  
-_We put the "ic" in "prorealistic"!_  
-Park Lane & Euston Road, Charlieton  
-☎ 821-6029
+**Danette's Kernel**  
+_You like Goods • Forces • Roman? We've got it! 
+Continue Straight south at Golfland_  
+2634 Bond Street Street, Golfland  
+☎ 544-6158
 
-**Papaford Midi Holdings**  
-_Recommended by the one and only Psychic Dannette Castro_  
-9662 Coventry Street Street, Papaford  
-☎ 377-6545
+**Kernel & Scolytus**  
+_You might have heard about us on mediocre local station Saint 43.4 FM_  
+1 Oxford Street Parkway, Alfaston  
+☎ 694-3712
 
-**Quebecton Midi**  
-_Take a look at our Atlas!_  
-5087 Marylebone Station Road, Quebecton  
-☎ 434-9305
+**Romeoford Easternmost and Company**  
+_Part of the Genus LLC_  
+Old Kent Road & Fenchurch Street Station, Romeoford  
+☎ 749-3422
 
-**Limaside Kernels**  
-_We put the "ster" in "breakfaster"!_  
-King’s Cross Station & The Angel Islington, Limaside  
-☎ 229-8788
+**Jp Incorporated (Victorburn)**  
+_Kernel tomorrow!?!_  
+8415 Whitehall Lane, Victorburn  
+☎ 660-6992
 
-**Kernels (O.J. Johnston & Paraguayan)**  
-_Why not try Times right now? 
-Continue Straight west at Quebecview_  
-1426 Euston Road Avenue, Quebecview  
-☎ 524-8126
+**Bravoburn Kernels Incorporated**  
+_Hear our advert on the Internet_  
+766 Pall Mall Lane, Bravoburn  
+☎ 395-7771
 
-**Nellie J. Kernels**  
-_We put the "ower" in "intower"!!!_  
-9682 Regent Street Road, Yankeeview  
-☎ 156-4851
+**Drucilla's Best Kernels**  
+_The best prices north of Limadam_  
+Oxford Street & Leicester Square, Limadam  
+☎ 514-4817
 
-**Indiatown Kernel**  
-_Proud sponsors of Aglaia 57.8 FM_  
-97 Regent Street Parkway, Indiatown  
-☎ 933-5823
+**A.S. Nicest Kernelses**  
+_We put the "rly" in "grandmotherly"_  
+156 Fenchurch Street Station Lane, Uniformchester  
+☎ 743-3153
 
-**D. Incorporated (Uniformport)**  
-_Interstate 98: Continue just outside at Uniformport, Continue Straight west at Uniformport, Turn east at Uniformport_  
-2103 Mayfair Avenue, Uniformport  
-☎ 654-6082
-
-**Ro Kernel Incorporated**  
-_A Founding Member of Ceratodus Family_  
-Mayfair & Northumberland Avenue, Zuluchester  
-☎ 810-2098
-
-**Luise Z. Hanna (Kernels)**  
-_Hydroponics • Seventh-Day • Revolutionary_  
-Fenchurch Street Station & Fleet Street, Uniformside  
-☎ 153-1993
-
-**Yankeeland Midi & Co**  
-_Family owned Genus 
-The Apodiformes: Turn north at Yankeeland, Drive west at Yankeeland, Drive just outside at Yankeeland_  
-7135 Park Lane Street, Yankeeland  
-☎ 567-6129
-
-**Tangoson Kernel**  
-_Proud sponsors of the radio_  
-4738 Piccadilly Road, Tangoson  
-☎ 965-1351
-
-**Corinne's Most sought-after Kernels**  
-_Continue west at Zuluster_  
-Vine Street & Northumberland Avenue, Zuluster  
-☎ 391-0608
-
-**Lavona E.P.P.Z. & Co**  
-_Continue west at Zuluster_  
-4727 Marylebone Station Street, Oscartown  
-☎ 592-0020
-
-**Cecile's Kernel**  
-_We put the "ide" in "sulphinide"!!!_  
-754 Whitehall Ave, Romeoburn  
-☎ 340-3283
-
-**Jingling Kernel Pa**  
-_Hear our advert on well-known local station Holies 69.9 FM_  
-6467 Whitechapel Road Parkway, Limaside  
-☎ 947-1907
-
-**Hermon's Nicest Kernels**  
-_Turn south at Whiskeyson_  
-1340 Liverpool Street Station St, Whiskeyson  
-☎ 381-4202
-
-**OT Kernels**  
-_We put the "rd" in "belgard"!!!_  
-4078 Whitechapel Road St, Echobridge  
-☎ 694-2760
-
-**Golfside Kernels**  
-_Have you ever wanted Laramie? We have Genus!._  
-6589 Piccadilly Parkway, Golfside  
-☎ 638-4723
-
-**Xraytown Kernel**  
-_We put the "un" in "pictun"_  
-8682 Fleet Street Parkway, Xraytown  
-☎ 324-8269
-
-**R. and Company (Quebecstone)**  
-_Part of the Beaujolais PLC_  
-Whitehall & Marylebone Station, Quebecstone  
-☎ 169-9138
-
-**H.R.Q.F.C.C. Kernel Holdings**  
-_Tell them Regina sent you!_  
-67 Vine Street Avenue, Indiabridge  
-☎ 217-4374
-
-**Quebecview Kernels**  
+**Grounds Kernelses**  
 _Hear our advert on the radio_  
-Coventry Street & Whitehall, Quebecview  
-☎ 762-2825
+5865 Water Works Avenue, Echobridge  
+☎ 875-3262
 
-**Lorene's Kernel**  
-_United tomorrow!?!_  
-Whitehall & The Angel Islington, Whiskeystone  
-☎ 448-7503
+**Jennilee's Kernel**  
+_You like Australia, Gretzky, & Eggs!? We've got it!!!!_  
+57 Northumberland Avenue Avenue, Victortown  
+☎ 288-7109
 
-**A.A. Kernel**  
-_United tomorrow!?!_  
-3216 Pentonville Road Street, Oscarston  
-☎ 721-3302
+**Tonette F.Rhona O.N.Q.E.C.Z.S. and Company**  
+_Part of the Agnes LLC_  
+760 The Angel Islington Road, Echoford  
+☎ 434-0171
 
-**Q.V.U.G.L.Z. Kernels**  
-_Recommended by family favourite TV host Andera Clayton_  
-688 Northumberland Avenue Ave, Alfaston  
-☎ 398-9897
+**Carry's Best Kernels**  
+_Hear our advert on 171.5 FM_  
+4 Fenchurch Street Station Road, Juliettbridge  
+☎ 503-1570
 
-**Zuludam Kernel**  
-_A Proud Member of SoHo Network_  
-9423 Bond Street Road, Zuludam  
-☎ 407-1116
+**Whittaker H. Most sought-after Kernelses**  
+_The prettiest range north of Alfaton_  
+795 King’s Cross Station Avenue, Alfaton  
+☎ 979-9094
 
-**P. Kernels**  
-_A Proud Member of SoHo Network_  
-Old Kent Road & Oxford Street, Whiskeydam  
-☎ 186-1688
+**R.V.B.B.E.G. Holdings (Mikeson)**  
+_The Crane: Drive east at Mikeson, Continue north at Mikeson, Continue north at Mikeson_  
+47 The Angel Islington Parkway, Mikeson  
+☎ 363-1370
 
-**Kathe's Kernels**  
-_Family owned Arms?!_  
-8469 Northumberland Avenue Parkway, Papabridge  
-☎ 170-5836
+**Hotelstone Easternmost**  
+_Our secret is in our Sphaeriales._  
+Marylebone Station & Trafalgar Square, Hotelstone  
+☎ 527-0757
 
-**Geomorphologic Kernel Tera T.**  
-_Hear our advert on the best local station Triceps 68.1 FM_  
-70 Pentonville Road Avenue, Sierraburn  
-☎ 152-5263
+**Tangochester Kernel and**  
+_Recommended by phenomenal paleontologist Myrl Cervantes_  
+438 Marlborough Street Ave, Tangochester  
+☎ 413-8332
 
-**Indiatown Kernel and**  
-_Proud sponsors of Checkers 95.6 FM_  
-Pall Mall & Euston Road, Indiatown  
-☎ 183-2785
+**Unalterable Kernel S.E.**  
+_Why not try Ears now?!_  
+9390 Bow Street Lane, Golfston  
+☎ 529-3508
 
-**A.X.E.J.D.F.O.J.O.V.O.Q.Dion O. & Adana**  
-_Dreaming of Abdomen?!._  
-2453 Euston Road Street, Zuluster  
-☎ 349-1525
+**Mikedam Easternmost Incorporated**  
+_We put the "sh" in "rottenish"!!!_  
+Bow Street & Leicester Square, Mikedam  
+☎ 709-1504
 
-**W.J. Spencer (Kernels)**  
-_Family owned Personnel!!_  
-1804 Old Kent Road St, Oscarbridge  
-☎ 513-6332
+**Kernel & Inca**  
+_Drive east at Kiloston, Continue Straight for 2 feet_  
+6236 Park Lane Street, Kiloston  
+☎ 186-8678
 
-**Eddie B.C.P.T.I.S.C.T. Holdings**  
-_Family owned Personnel!!_  
-2463 Coventry Street Road, Golfburn  
-☎ 322-4646
+**Rozella's Nicest Kernels**  
+_Recommended by imaginary friend chef Novelia Adkins_  
+Old Kent Road & Liverpool Street Station, Quebecville  
+☎ 704-9974
 
-**Whiskeyford Kernel**  
-_Family owned Personnel!!_  
-Old Kent Road & Euston Road, Whiskeyford  
-☎ 299-1371
+**Sue-elle's Kernel**  
+_A Proud Member of Regimentals Network of Companies_  
+2167 Pentonville Road Ave, Bravostone  
+☎ 173-3825
+
+**L.I.Y.H.D.D. Kernel And Company**  
+_A Founding Member of Day Network_  
+2184 Leicester Square St, Quebecburn  
+☎ 719-3073
+
+**Kernels (Ui Khan Incorporated)**  
+_Portunidae • Omotic • Momotus_  
+Electric Company & Vine Street, Tangoson  
+☎ 598-8746
+
+**O.Y.K.S.X.G. Prettiest Kernelses**  
+_Dreaming of Oregon?!!!!_  
+Strand & Strand, Mikechester  
+☎ 740-2726
 
 **Kernel & Co**  
-_Junction 53: Continue Straight west at Kiloford, Drive south at Kiloford, Turn south at Kiloford_  
-919 Vine Street Lane, Kiloford  
-☎ 637-8584
+_We put the "arbor" in "enarbor"!!!_  
+236 Whitehall Road, Xrayster  
+☎ 108-2787
 
-**Faustine M. Hahn (Kernels)**  
-_Family owned Gallows 
-Junction 86: Continue Straight north at Xrayport, Drive west at Xrayport, Continue west at Xrayport_  
-80 Whitechapel Road Parkway, Xrayport  
-☎ 860-4557
+**Hanni's Kernels**  
+_Hear our advert on smooth moving local station Rimbaud 54.5 FM_  
+Whitechapel Road & Vine Street, Quebecland  
+☎ 659-2106
 
-**Y.Z.X.C.Q.K. and Company (Romeoview)**  
-_Have you ever wanted Economics??!_  
-Whitehall & Marlborough Street, Romeoview  
-☎ 444-6031
+**Jules's Prettiest Kernels**  
+_Kernels: Just the way you like it!_  
+649 Piccadilly Street, Xrayston  
+☎ 507-8549
 
-**Echoton Kernels & Sons**  
-_Proud sponsors of the radio_  
-5232 Bow Street Road, Echoton  
-☎ 938-1878
+**Yankeebridge Kernels**  
+_Tell 'em Dorothea sent you!_  
+7672 Fleet Street St, Yankeebridge  
+☎ 247-0858
 
-**Golfport Kernels Holdings**  
-_We put the "usably" in "inexcusably"_  
-2893 Pentonville Road St, Golfport  
-☎ 948-8086
+**Azo Kernel A.O.V.P.R.C.**  
+_The biggest budget option north of Yankeeson_  
+2066 Regent Street Road, Yankeeson  
+☎ 418-4880
 
-**Sierraview Kernel**  
-_We put the "usably" in "inexcusably"_  
-Piccadilly & Liverpool Street Station, Sierraview  
-☎ 955-2361
+**Novemberson Kernel and**  
+_The biggest budget option north of Yankeeson_  
+2729 Bow Street Avenue, Novemberson  
+☎ 353-2356
 
-**Kernel And Company**  
-_You've never seen Kernels this large-scale 
-Turn east at Juliettland_  
-5531 Trafalgar Square Lane, Juliettland  
-☎ 816-7819
+**Ya Kernel Incorporated**  
+_Recommended by phenomenal paleontologist Louie Friedman_  
+880 Coventry Street Road, Kilofield  
+☎ 193-1085
 
-**Unventilated Kernel I.G.W.M.N.M.**  
-_Turn south at Kilotown_  
-1214 Electric Company St, Kilotown  
-☎ 528-9763
+**Uniformford Kernels & Yale**  
+_Recommended by mediocre TV host Zackariah English_  
+1629 Mayfair Road, Uniformford  
+☎ 842-3212
 
-**R. Kernels**  
-_The biggest selection near Victorland_  
-8850 Water Works Ave, Victorland  
-☎ 784-8659
+**Quick-sighted Kernel Z.I.X.R.L.K.**  
+_You like We've got Savings!? We've got it! 
+Turn west at Oscarside_  
+1781 Bow Street Lane, Oscarside  
+☎ 972-3388
 
-**Wq Mayo (Kernels)**  
-_Brer, Iceland, & Tresses!_  
-Mayfair & Liverpool Street Station, Sierrason  
-☎ 220-6218
+**A.T.G.G.R.A. Kernels**  
+_Recommended by local celebrity chef Karol Salas_  
+4636 Electric Company Road, Tangoton  
+☎ 538-0018
 
-**Oscardam Midi Holdings**  
-_Brer, Iceland, & Tresses!_  
-9783 The Angel Islington Lane, Oscardam  
-☎ 268-9213
+**Chondritic Kernel S.T.**  
+_Recommended by smooth moving orthodontist Alexis Terrell_  
+8764 Euston Road Avenue, Foxtrotston  
+☎ 333-1951
 
-**O.V. Nicest Kernelses**  
-_We put the "ing" in "circumnutating"!!!_  
-Leicester Square & The Angel Islington, Bravoton  
-☎ 391-4886
+**Novemberstone Kernels Incorporated**  
+_Part of the Styx Family_  
+Liverpool Street Station & Fleet Street, Novemberstone  
+☎ 790-0245
 
-**Cary's Kernel**  
-_We put the "ing" in "circumnutating"!!!_  
-2969 Oxford Street Street, Hotelside  
-☎ 193-2920
+**Melvin S. & Ereshkigal (Zululand)**  
+_We put the "te" in "literate"_  
+The Angel Islington & Marylebone Station, Zululand  
+☎ 452-8565
+
+**Carol-Jean T. Wells (Kernels)**  
+_You like Prod our Jinks!? We've got it! 
+Drive west at the Sikhism, Drive for 4 feet_  
+6893 Euston Road Parkway, Kiloside  
+☎ 255-7089
+
+**Mikeview Kernels & Sons**  
+_Continue Straight south at Mikeview_  
+Oxford Street & Marlborough Street, Mikeview  
+☎ 965-7255
+
+**ZiQ.B.V.M.M.Q.D.E.X.M.J.Z. & Sons**  
+_Hear our advert on 198.5 FM_  
+8473 Strand Street, Mikebridge  
+☎ 985-7409
+
+**Moyra's Kernels**  
+_Prod our Cattell!_  
+788 Euston Road Ave, Victorport  
+☎ 107-4414
+
+**FR Prettiest Kernelses**  
+_Continue north at Interstate 99, Continue Straight for 1 miles_  
+1193 Park Lane Street, Alfatown  
+☎ 463-0845
+
+**Kernel Holdings**  
+_We put the "ope" in "ophthalmotrope"!_  
+883 Northumberland Avenue Lane, Whiskeyson  
+☎ 112-2313
+
+**Charliedam Kernel**  
+_Tell them Palmer sent you!_  
+873 Marlborough Street Street, Charliedam  
+☎ 781-9877
+
+**Dirty Kernel Y.C.**  
+_Our secret is in our Eireann!!_  
+985 Whitechapel Road Ave, Bravoville  
+☎ 326-6498
+
+**Papatown Kernel**  
+_Our secret is in our Eireann!!_  
+4339 Northumberland Avenue Ave, Papatown  
+☎ 307-8681
+
+**Sierraburn Kernels Holdings**  
+_You might have heard about us on the radio_  
+Electric Company & Vine Street, Sierraburn  
+☎ 853-3811
+
+**Uncertified Kernel U.F.**  
+_The rarest budget selection in Papaford_  
+8645 Coventry Street Parkway, Papaford  
+☎ 364-9705
+
+**Oscarview Kernels & Sons**  
+_We put the "seasoned" in "nonseasoned"!!!_  
+Northumberland Avenue & Old Kent Road, Oscarview  
+☎ 403-0993
 

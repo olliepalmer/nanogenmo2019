@@ -8,445 +8,377 @@ title: Mathematicses
 # Mathematicses
 
 
- **Crescent Mathematics Cc**  
-_We put the "lene" in "tetrafluoroethylene"!!!_  
-2895 Old Kent Road Parkway, Echochester  
-☎ 765-2775
-
-**Hotelland Mathematics**  
-_The rarest selection in Hotelland_  
-1088 Whitehall Parkway, Hotelland  
-☎ 428-7558
-
-**Undatable Mathematics D.F.**  
-_The best range in Oscarson_  
-5435 Leicester Square Parkway, Oscarson  
-☎ 197-4494
-
-**J.L. Mathematics**  
-_Dreaming of Underground?! 
-Junction 34: Continue Straight west at Deltaburn, Drive west at Deltaburn, Continue Straight east at Deltaburn_  
-Fleet Street & Whitehall, Deltaburn  
-☎ 499-9930
-
-**Mathematics Holdings**  
-_Quebecbridge: Turn just outside at Quebecbridge, Continue west at Quebecbridge, Continue Straight north at Quebecbridge_  
-Water Works & Coventry Street, Quebecbridge  
-☎ 811-4375
-
-**Novemberland Mathematicses**  
-_The oldest large-scale selection near Novemberland_  
-Marylebone Station & Regent Street, Novemberland  
-☎ 574-8745
-
-**A.O. and Company (Tangochester)**  
-_Our secret is in our Custer!_  
-633 Bow Street Road, Tangochester  
-☎ 937-9737
-
-**Indiaston Mathematicses**  
-_Mathematicses: Just the way you like it!_  
-3610 Euston Road Lane, Indiaston  
-☎ 172-0193
-
-**U.U. Mathematics And Company**  
-_We put the "wer" in "wiredrawer"_  
-7309 Trafalgar Square Road, Yankeeside  
-☎ 155-7884
-
-**S.W. Hood (Mathematicses)**  
-_Turn south at Romeostone, Turn for 9 feet_  
-5543 Mayfair St, Romeostone  
-☎ 390-6321
-
-**Romeostone Asexual & Sons**  
-_You like Vienne • Doctor • Nodes? We've got it! 
-Turn west at Romeostone, Turn for 7 feet_  
-5137 Water Works Avenue, Romeostone  
-☎ 511-2955
-
-**Juliettdam Asexual**  
-_Recommended by well-known dentist Theresa-Marie Vance_  
-3931 Bow Street Lane, Juliettdam  
-☎ 616-9464
-
-**Campaign Mathematicseses**  
-_Tell 'em Kacy sent you!_  
-55 Fleet Street Avenue, Hotelport  
-☎ 280-8880
-
-**J. Koch (Mathematicses)**  
-_Dreaming of Leakey?!!_  
-5413 Bow Street Ave, Sierraton  
-☎ 647-9046
-
-**Juliettston Asexual and Company**  
-_Mathematicses: Just the way you like it 
-Drive north at the Trepidans, Drive for 9 feet_  
-6 Fleet Street Avenue, Juliettston  
-☎ 794-1050
-
-**Z.B.E.T.H.D. Most sought-after Mathematicseses**  
-_Mathematicses: Just the way you like it 
-Drive north at the Trepidans, Drive for 9 feet_  
-891 Liverpool Street Station St, Foxtrotdam  
-☎ 791-8450
-
-**Deltaport Mathematicses & Co**  
-_Just say Somerset sent you!_  
-4803 Electric Company Avenue, Deltaport  
-☎ 970-9859
-
-**Whiskeyville Mathematicses & Co**  
-_Vaughan • Seas • Munitions_  
-71 Piccadilly Avenue, Whiskeyville  
-☎ 148-9662
-
-**E.E.B.I.S.J. & Co (Juliettster)**  
-_We put the "ca" in "posca"_  
-Bow Street & The Angel Islington, Juliettster  
-☎ 212-0206
-
-**Alfastone Asexual Incorporated**  
-_Have you ever wanted Iran? 
-The Ovocon: Drive south at Alfastone, Continue Straight south at Alfastone, Continue Straight north at Alfastone_  
-38 Piccadilly Avenue, Alfastone  
-☎ 174-3414
-
-**Romeoson Mathematics and**  
-_Take a look at our Drum!_  
-Bond Street & Bond Street, Romeoson  
-☎ 834-1193
-
-**X.F. Mathematicses**  
-_You like Sports • Pangs • House? We've got it!!_  
-Oxford Street & King’s Cross Station, Yankeester  
-☎ 884-7698
-
-**Novemberstone Mathematics and**  
-_We put the "ptosis" in "symptosis"!_  
-2833 Electric Company Parkway, Novemberstone  
-☎ 524-1476
-
-**O.F.U.W.Y.Z. and Company (Zuluville)**  
-_The best huge selection north of Zuluville_  
-9 Vine Street Street, Zuluville  
-☎ 490-3791
-
-**Tz Mathematics & Sons**  
-_A Proud Member of Genus LLC_  
-1516 Euston Road Ave, Mikeview  
-☎ 289-4654
-
-**Hewie's Mathematicses**  
-_A Founding Member of Platystemon Family_  
-24 The Angel Islington Street, Juliettside  
-☎ 885-9309
-
-**Bravostone Asexual**  
-_The prettiest mid-range selection north of Bravostone_  
-Mayfair & Marlborough Street, Bravostone  
-☎ 106-6092
-
-**Deltabridge Mathematicses Holdings**  
-_The prettiest mid-range selection north of Bravostone_  
-7 Euston Road St, Deltabridge  
-☎ 684-2685
-
-**O. Mathematics & Sons**  
-_You've never seen Mathematicses this upscale 
-Drive south at Interstate 90, Turn for 6 feet_  
-3494 Pentonville Road Road, Quebecfield  
-☎ 991-9616
-
-**Mathematics Incorporated**  
-_You've never seen Mathematicses this huge 
-Drive east at Junction 51, Turn for 50 feet_  
-Fenchurch Street Station & Whitechapel Road, Tangoson  
-☎ 635-0155
-
-**XV Prettiest Mathematicseses**  
-_A Founding Member of Allies Network_  
-Mayfair & Trafalgar Square, Juliettton  
-☎ 406-8696
-
-**Proximal Mathematics F.**  
-_Our secret is in our Steinmetz 
-Continue Straight south at the Genus, Continue for 7 miles_  
-801 Trafalgar Square Ave, Oscarson  
-☎ 672-9518
-
-**Mikefield Asexual**  
-_Recommended by excellent chef Isador Weiss_  
-Whitechapel Road & Whitechapel Road, Mikefield  
-☎ 796-9391
-
-**Ink-jet Mathematics Y.**  
-_Whiskeyland: Continue west at Whiskeyland, Turn north at Whiskeyland, Turn south at Whiskeyland_  
-Marlborough Street & The Angel Islington, Whiskeyland  
-☎ 107-7561
-
-**Martes Mathematicseses**  
-_The oldest collection near Echoburn_  
-5942 Marlborough Street Ave, Echoburn  
-☎ 131-6374
-
-**Mathematicses (B.E.M.F.R.L. Gould Holdings)**  
-_The prettiest collection near Tangoford_  
-The Angel Islington & Coventry Street, Tangoford  
-☎ 151-3578
-
-**Directional Mathematics X.B.V.W.K.Q.**  
-_We put the "kyl" in "aralkyl"!!!_  
-Trafalgar Square & Coventry Street, Kiloford  
-☎ 421-1038
-
-**Miguela I. Mathematics**  
-_Part of the Putamen Network_  
-7225 Piccadilly Parkway, Quebecson  
-☎ 960-2861
-
-**Mathematics & Horse**  
-_You like Gesneriaceae, Pants, & Brooklyn!? We've got it! 
-Continue north at Xrayson_  
-Marylebone Station & Pentonville Road, Xrayson  
-☎ 861-0590
-
-**Juliettton Mathematicses**  
-_Arminian • Arms • Hamamelidae_  
-Park Lane & Strand, Juliettton  
-☎ 597-2493
-
-**Romeoton Mathematics and**  
-_Hear our advert on Arms 15.8 FM_  
-226 Bond Street Avenue, Romeoton  
-☎ 818-0175
-
-**Whiskeychester Asexual**  
-_The nicest selection near Whiskeychester_  
-Strand & Electric Company, Whiskeychester  
-☎ 994-5250
-
-**Mathematics & Notre**  
-_We put the "ls" in "whirls"!_  
-110 Piccadilly Lane, Quebecstone  
-☎ 654-8537
-
-**Mathematicses (C.I. Acosta Incorporated)**  
-_We put the "ls" in "whirls"!_  
-5910 Marylebone Station Street, Echofield  
-☎ 511-7118
-
-**T.P. Casey (Mathematicses)**  
-_We put the "ls" in "whirls"!_  
-Park Lane & Liverpool Street Station, Limafield  
-☎ 717-3783
-
-**W.H.C.V.V.J. Most sought-after Mathematicseses**  
-_Relax with Mount!_  
-Euston Road & Strand, Quebecston  
-☎ 117-2641
-
-**Whiskeychester Mathematicses and Company**  
-_Tell them Herrick sent you!_  
-277 Electric Company Ave, Whiskeychester  
-☎ 625-0439
-
-**Y.I.O.T.H.V. Mathematics**  
-_You want Mathematicses? We've got Mathematicses!._  
-30 Whitehall St, Victorson  
-☎ 840-6989
-
-**Mathematics & Sons**  
-_You want Mathematicses? We've got Mathematicses!._  
-6029 Whitehall Lane, Kiloston  
-☎ 350-9510
-
-**A.S.H.Y.H.P.ChC.Y.O.E.A.P. Holdings**  
-_Data now!!!_  
-6037 Northumberland Avenue Avenue, Quebecton  
-☎ 919-2881
-
-**Caryl's Mathematicses**  
-_We put the "rise" in "epimerise"!!!_  
-78 Old Kent Road Parkway, Romeoton  
-☎ 654-8901
-
-**K.R. Mathematicses**  
-_We put the "dian" in "suidian"!!!_  
-5862 King’s Cross Station Street, Mikestone  
-☎ 618-3052
-
-**Mathematics Incorporated**  
-_Phenylketonuria right now! 
-Continue Straight south at the People, Continue for 4 miles_  
-Fleet Street & Euston Road, Alfaston  
-☎ 144-4374
-
-**Ajay's Mathematics**  
-_Our secret is in our Women 
-Interstate 64: Continue west at Quebecchester, Turn north at Quebecchester, Drive south at Quebecchester_  
-4985 Old Kent Road St, Quebecchester  
-☎ 865-0111
-
-**Quebecside Mathematics**  
-_Continue Straight west at Junction 34, Turn for 38 miles_  
-Whitechapel Road & Leicester Square, Quebecside  
-☎ 151-5739
-
-**Foxtrotchester Asexual**  
-_The rarest selection near Foxtrotchester_  
-9155 Regent Street Street, Foxtrotchester  
-☎ 602-8112
-
-**Echoburn Asexual**  
-_Tell 'em Biddy sent you!_  
-7154 Whitehall Road, Echoburn  
-☎ 957-8499
-
-**Mathematicses (S. Mcmahon Holdings)**  
-_You'll love our Lake!_  
-Liverpool Street Station & King’s Cross Station, Yankeeton  
-☎ 407-8250
-
-**Deltaland Mathematics**  
-_You'll love our Lake!_  
-3320 Fleet Street Lane, Deltaland  
-☎ 130-8601
-
-**SE Mathematicses**  
-_The rarest collection just outside of Oscarbridge_  
-992 Pall Mall Street, Oscarbridge  
-☎ 187-1697
-
-**Echoville Asexual**  
-_The rarest collection just outside of Oscarbridge_  
-6945 Whitehall Street, Echoville  
-☎ 127-7312
-
-**Mathematics Incorporated**  
-_Continue north at Oscarburn_  
-Marlborough Street & Trafalgar Square, Oscarburn  
-☎ 379-2212
-
-**Inquisitorial Mathematics Ae**  
-_Just say Lyn sent you!_  
-9984 Strand St, Yankeeston  
-☎ 147-6628
-
-**Bertram's Mathematicses**  
-_Dreaming of Lewis?!!!!_  
-Strand & Oxford Street, Indiaster  
-☎ 591-8588
-
-**Yankeeton Asexual**  
-_We put the "risk" in "bassarisk"!!!_  
-4542 Bow Street St, Yankeeton  
-☎ 677-3377
-
-**Uniformson Asexual**  
-_We put the "ms" in "posteriorums"_  
-Marlborough Street & Water Works, Uniformson  
-☎ 917-7843
+ **Tangoport Mathematicses**  
+_The biggest mid-range selection north of Tangoport_  
+Fleet Street & Marlborough Street, Tangoport  
+☎ 255-3943
+
+**Alejandro's Mathematics**  
+_The oldest prices near Bravoville_  
+2 Fenchurch Street Station Lane, Bravoville  
+☎ 919-6815
+
+**Tangoster Samoan and Company**  
+_The best budget option in Tangoster_  
+Marlborough Street & Old Kent Road, Tangoster  
+☎ 593-3746
+
+**Rufe's Mathematicses**  
+_The biggest prices near Alfastone_  
+Pall Mall & Marylebone Station, Alfastone  
+☎ 155-4603
+
+**C. Sawyer (Mathematicses)**  
+_Our secret is in our Cyprinodontidae 
+Interstate 49: Continue Straight south at Whiskeyside, Continue just outside at Whiskeyside, Drive west at Whiskeyside_  
+176 Park Lane Road, Whiskeyside  
+☎ 287-5340
 
 **Mathematics And Company**  
-_Our secret is in our Walla._  
-1308 Coventry Street Lane, Whiskeychester  
-☎ 350-6805
+_Forces right now! 
+Continue Straight north at Echoport_  
+Coventry Street & Bond Street, Echoport  
+☎ 567-6760
 
-**Victorchester Mathematics and**  
-_We put the "spectrophotometry" in "cytospectrophotometry"!_  
-332 The Angel Islington Avenue, Victorchester  
-☎ 895-0007
+**Gros Mathematicseses**  
+_We put the "mist" in "reformist"_  
+5663 Bow Street Road, Deltaburn  
+☎ 323-3416
 
-**Romeochester Asexual**  
-_The biggest high budget selection in Romeochester_  
-39 Liverpool Street Station Avenue, Romeochester  
-☎ 635-0171
+**Limaburn Mathematicses and Company**  
+_Hear our advert on 142.2 FM_  
+Strand & Liverpool Street Station, Limaburn  
+☎ 672-3916
 
-**Mathematicses (Kimberly I. Morris & Co)**  
-_Shears • Celtic • Men_  
-633 Old Kent Road Ave, Quebecview  
-☎ 777-9178
+**Victorston Mathematicses & Sons**  
+_Hear our advert on 142.2 FM_  
+5699 Northumberland Avenue Street, Victorston  
+☎ 612-8444
 
-**Mathematics & Robeson**  
-_Recommended by mediocre TV host Addie Guevara_  
-3688 Strand Road, Oscarbridge  
-☎ 856-7525
+**Victorston Mathematicses Incorporated**  
+_Our secret is in our Dawson 
+Victorston: Turn east at Victorston, Continue east at Victorston, Turn south at Victorston_  
+674 Regent Street Road, Victorston  
+☎ 693-3960
 
-**Golfton Mathematicses**  
-_We put the "doer" in "evildoer"!_  
-6710 Leicester Square Ave, Golfton  
-☎ 807-7466
+**A.R. Mathematics Incorporated**  
+_Turkoman, Marlowe, & Species!_  
+Old Kent Road & Coventry Street, Romeofield  
+☎ 609-6241
 
-**I.F. Incorporated (Oscarland)**  
-_The biggest prices east of Oscarland_  
-2292 Regent Street Road, Oscarland  
-☎ 661-3613
+**Charlieland Mathematicses**  
+_The rarest budget selection near Charlieland_  
+5546 Strand Parkway, Charlieland  
+☎ 613-8763
 
-**Antonio's Rarest Mathematicses**  
-_We put the "an" in "alarodian"!_  
-51 Park Lane Street, Charlieside  
-☎ 865-7976
+**Mathematics & Brer**  
+_Sturnus the next chance you get! 
+Turn west at the Chilopsis, Continue for 74 feet_  
+Fenchurch Street Station & Bond Street, Deltafield  
+☎ 580-9277
 
-**Alfaton Asexual Incorporated**  
-_We put the "an" in "alarodian"!_  
-Liverpool Street Station & Electric Company, Alfaton  
-☎ 922-0437
+**C. Mathematics & Co**  
+_Junction 93: Continue Straight west at Victorfield, Continue Straight south at Victorfield, Continue Straight just outside at Victorfield_  
+176 Euston Road Avenue, Victorfield  
+☎ 732-7243
 
-**Alfabridge Mathematics and**  
-_You like Beans, Linguistics, & Bells!? We've got it! 
-Drive east at Alfabridge_  
-1298 Park Lane Road, Alfabridge  
-☎ 288-7981
+**Theda's Mathematics**  
+_Have you ever wanted Clinton? We have Salvadora!!_  
+8782 Marylebone Station St, Quebecview  
+☎ 582-5000
 
-**Indiatown Asexual & Castroism**  
-_You'll love our Applesauce!_  
-670 Fleet Street Parkway, Indiatown  
-☎ 757-6418
+**Juliettster Samoan & Tyrolean**  
+_We put the "ly" in "sinistrorsally"!!!_  
+8560 Fleet Street Ave, Juliettster  
+☎ 139-1259
 
-**Golfland Asexual**  
-_Recommended by your favourite Psychic Wolfy Schwartz_  
-7797 Electric Company Parkway, Golfland  
-☎ 234-8701
+**N.L. Mathematics**  
+_Have you ever wanted Haeckel?!_  
+3391 Oxford Street Avenue, Bravochester  
+☎ 293-6753
 
-**EB Best Mathematicseses**  
-_Continue north at Interstate 74, Continue Straight for 29 miles_  
-1073 Leicester Square Parkway, Limaston  
-☎ 906-4988
+**Zulustone Mathematicses**  
+_Hear our advert on the Internet_  
+6 Regent Street Avenue, Zulustone  
+☎ 842-2767
 
-**Mathematics & Mateo**  
-_Continue north at Interstate 74, Continue Straight for 29 miles_  
-508 Marlborough Street Street, Golfston  
-☎ 894-3287
+**Mathematics & Co**  
+_A Proud Member of Spirits L.L.C._  
+8607 Marylebone Station Ave, Deltason  
+☎ 667-3811
 
-**Darrell's Mathematicses**  
-_We put the "er" in "leeser"!_  
-2 Mayfair Road, Limastone  
-☎ 236-0896
+**S.B. Mathematics And Company**  
+_A Founding Member of Nazimova LLC_  
+5176 Whitechapel Road Lane, Mikeston  
+☎ 383-4986
 
-**Alfaville Mathematics**  
-_A Proud Member of Tidal Family_  
-2298 Bow Street Avenue, Alfaville  
-☎ 705-9428
+**R.L.D.E.G.D. Mathematics**  
+_We put the "er" in "palaverer"_  
+Whitechapel Road & Pentonville Road, Romeoson  
+☎ 314-8373
 
-**Mathematicses (S.S.U.Q.F.J. Huber & Dialeurodes)**  
-_Hear our advert on local celebrity local station Rubinstein 60.4 FM_  
-48 Whitechapel Road Street, Sierrachester  
-☎ 972-0523
+**Foxtrotbridge Mathematicses**  
+_We put the "er" in "palaverer"_  
+9 Marlborough Street Avenue, Foxtrotbridge  
+☎ 206-7888
+
+**Kristen's Prettiest Mathematicses**  
+_Baron • Tears • Biometrics_  
+9854 Whitechapel Road Ave, Limaport  
+☎ 124-5923
+
+**Darkish Mathematics Y.E.**  
+_Baron • Tears • Biometrics_  
+22 King’s Cross Station Road, Yankeeston  
+☎ 505-8766
+
+**Indefensible Mathematics R.C.H.Q.Y.P.**  
+_Baron • Tears • Biometrics_  
+2541 Leicester Square Ave, Foxtrotton  
+☎ 332-0120
+
+**Burt's Nicest Mathematicses**  
+_You want Mathematicses? We've got Mathematicses!!!!_  
+Mayfair & Electric Company, Xrayton  
+☎ 116-5608
+
+**Mathematics & Lepiota**  
+_Genomics, Habsburg, & Revolutions!_  
+Whitehall & King’s Cross Station, Indiafield  
+☎ 913-1600
+
+**Odell's Best Mathematicses**  
+_Continue Straight just outside at Victorland_  
+Fleet Street & Marylebone Station, Victorland  
+☎ 222-8873
+
+**Janice's Mathematics**  
+_The rarest prices near Juliettson_  
+5737 Marlborough Street St, Juliettson  
+☎ 685-8993
+
+**D.J. Mathematics**  
+_Turn west at Interstate 77, Continue Straight for 9 miles_  
+3367 Vine Street Road, Quebecfield  
+☎ 832-7765
+
+**Udell's Most sought-after Mathematicses**  
+_A Founding Member of Bitumen Network_  
+Marylebone Station & Marylebone Station, Tangotown  
+☎ 688-9188
+
+**Hotelton Samoan & Severn**  
+_Why not try Yangon the next chance you get?!_  
+759 Park Lane Lane, Hotelton  
+☎ 794-2349
+
+**Chelicerata Mathematicseses**  
+_Drive south at Golfson_  
+451 Euston Road Parkway, Golfson  
+☎ 787-4256
+
+**Lazaro's Mathematics**  
+_Recommended by mid-range paleontologist Barth Love_  
+1338 Whitehall Ave, Indiaford  
+☎ 320-7956
+
+**Gerti K. Oldest Mathematicseses**  
+_Mathematicses: Just the way you like it 
+Victorland: Turn east at Victorland, Continue south at Victorland, Continue Straight south at Victorland_  
+75 Leicester Square Street, Victorland  
+☎ 153-2638
+
+**Ravil A. Prettiest Mathematicseses**  
+_You like Jersey • Security • Alkaptonuria? We've got it!!!!_  
+Marylebone Station & Pentonville Road, Golfston  
+☎ 575-7982
+
+**Margarethe's Mathematics**  
+_You like Jersey • Security • Alkaptonuria? We've got it!!!!_  
+Old Kent Road & Euston Road, Hotelbridge  
+☎ 664-7680
+
+**H.A.F.K.G.S.J.Ib and Company**  
+_The prettiest upscale selection in Golfville_  
+217 Northumberland Avenue Ave, Golfville  
+☎ 957-2241
+
+**Kirby L. Incorporated (Golfton)**  
+_We put the "sm" in "laconism"!_  
+Marlborough Street & Vine Street, Golfton  
+☎ 320-8707
+
+**Bravoport Mathematics and**  
+_Recommended by mediocre Psychic Latashia Esparza_  
+429 Coventry Street Street, Bravoport  
+☎ 563-4262
+
+**Uniformton Mathematicses**  
+_You've never seen Mathematicses this budget!!!_  
+Piccadilly & Pall Mall, Uniformton  
+☎ 441-4941
+
+**W. and Company (Yankeeview)**  
+_Just say Gweneth sent you!_  
+Marylebone Station & Marylebone Station, Yankeeview  
+☎ 692-8982
+
+**I. Best Mathematicseses**  
+_You've never seen Mathematicses this upscale!!_  
+2715 Fenchurch Street Station Ave, Xrayford  
+☎ 296-9119
+
+**R.H.C.J.Q.O. Tucker (Mathematicses)**  
+_We put the "ur" in "demeanour"!!!_  
+8297 Trafalgar Square Street, Novembertown  
+☎ 773-8730
+
+**Mathematics & Sons**  
+_Recommended by the one and only Psychic Annetta Gallegos_  
+5035 Regent Street Avenue, Tangofield  
+☎ 715-3821
+
+**Oscardam Mathematics and**  
+_You might have heard about us on the Internet_  
+King’s Cross Station & Northumberland Avenue, Oscardam  
+☎ 790-8598
+
+**Fingal Mathematicseses**  
+_Recommended by phenomenal TV host Tomika Hale_  
+9926 Mayfair Parkway, Alfaton  
+☎ 300-1031
+
+**Acts Mathematicseses**  
+_Dreaming of Nile?!!!_  
+1160 The Angel Islington Lane, Limaside  
+☎ 964-3426
+
+**Maurene Q. Mathematics**  
+_Dreaming of Sudbury?!._  
+8628 Electric Company Lane, Zuluford  
+☎ 283-9386
+
+**Novemberburn Samoan**  
+_Just say Nessa sent you!_  
+485 Water Works Road, Novemberburn  
+☎ 364-8794
 
 **Mathematics Holdings**  
-_We put the "men" in "scrubwomen"!_  
-1750 Fenchurch Street Station Avenue, Echobridge  
-☎ 801-0665
+_You want Mathematicses? We've got Mathematicses! 
+Continue east at Interstate 42, Continue Straight for 78 feet_  
+Pentonville Road & Regent Street, Bravofield  
+☎ 302-4957
 
-**Uniformster Mathematics and**  
-_Drive just outside at Uniformster_  
-Fleet Street & Whitehall, Uniformster  
-☎ 464-8307
+**D. Kline (Mathematicses)**  
+_The most sought-after selection west of Oscarford_  
+The Angel Islington & Liverpool Street Station, Oscarford  
+☎ 517-6214
 
-**X.W. Watkins (Mathematicses)**  
-_We put the "ot" in "wonnot"!_  
-4585 Bond Street Lane, Romeoland  
-☎ 296-9151
+**Mathematics & Sons**  
+_You like Data, Veins, & Haggai!? We've got it! 
+Junction 95: Drive just outside at Whiskeystone, Continue Straight south at Whiskeystone, Turn south at Whiskeystone_  
+8227 Marlborough Street Avenue, Whiskeystone  
+☎ 851-3395
+
+**Victorside Mathematics**  
+_Have you ever wanted Tokay? We have II!!!_  
+Strand & Trafalgar Square, Victorside  
+☎ 588-5956
+
+**Tangoside Mathematicses**  
+_You've never seen Mathematicses this budget?!_  
+5456 Oxford Street Avenue, Tangoside  
+☎ 425-2190
+
+**Kaylee A.N.J.G.C.P.U.Br & Co**  
+_We put the "rs" in "mentors"_  
+3683 The Angel Islington Parkway, Papaton  
+☎ 218-4893
+
+**Candles Mathematicseses**  
+_The most sought-after collection in Golfstone_  
+5981 Vine Street St, Golfstone  
+☎ 365-8944
+
+**Golfstone Samoan**  
+_The best selection in Golfstone_  
+556 The Angel Islington St, Golfstone  
+☎ 159-2931
+
+**Whiskeyburn Samoan**  
+_Hindu • Ladies • Acid_  
+9835 Marlborough Street Ave, Whiskeyburn  
+☎ 839-7504
+
+**Horseshoe Mathematicseses**  
+_You want Mathematicses? We've got Mathematicses! 
+Continue just outside at Interstate 47, Continue for 3 feet_  
+8545 Pentonville Road Road, Victorburn  
+☎ 739-9372
+
+**AvJhHeidy P. & Calvinist**  
+_You want Mathematicses? We've got Mathematicses! 
+Continue just outside at Interstate 47, Continue for 3 feet_  
+7 Leicester Square Parkway, Sierraster  
+☎ 444-2142
+
+**Hotelport Samoan**  
+_You might have heard about us on 116.1 FM_  
+Northumberland Avenue & Mayfair, Hotelport  
+☎ 376-2324
+
+**Romeostone Mathematicses & Day**  
+_The nicest upscale selection in Romeostone_  
+Whitehall & Vine Street, Romeostone  
+☎ 917-3524
+
+**Phonological Mathematics U.Z.N.T.F.D.**  
+_The most sought-after budget option in Victorford_  
+Whitechapel Road & Piccadilly, Victorford  
+☎ 708-5988
+
+**Y.S.W.C.F.J. Mathematics**  
+_Maldives, Mysis, & Posteriores!_  
+65 Pentonville Road St, Deltadam  
+☎ 725-9295
+
+**Margarite's Best Mathematicses**  
+_Recommended by smooth moving dentist Stacia Quinn_  
+81 Northumberland Avenue Lane, Bravobridge  
+☎ 505-3062
+
+**Mark A. Mathematics & Co**  
+_Proud sponsors of Payments 81.9 FM_  
+4477 King’s Cross Station Lane, Bravoford  
+☎ 535-1500
+
+**Victordam Samoan**  
+_The rarest range north of Victordam_  
+3658 Trafalgar Square Road, Victordam  
+☎ 114-1683
+
+**Mathematics Holdings**  
+_A Proud Member of Stores Family_  
+1900 Oxford Street Lane, Oscarchester  
+☎ 640-8134
+
+**Tess's Mathematics**  
+_A Proud Member of Stores Family_  
+9 Vine Street Road, Juliettport  
+☎ 997-2439
+
+**John's Mathematicses**  
+_Recommended by local celebrity paleontologist Gaynor Anderson_  
+333 Coventry Street Avenue, Indiaton  
+☎ 837-5295
+
+**Q.O.I. & Sons**  
+_Part of the Pussytoes PLC_  
+172 Coventry Street Lane, Yankeeston  
+☎ 832-0777
+
+**Papabridge Samoan**  
+_Mathematicses: Just the way you like it!!!_  
+5058 The Angel Islington Lane, Papabridge  
+☎ 732-0752
 

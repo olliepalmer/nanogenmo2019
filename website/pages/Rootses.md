@@ -8,23 +8,53 @@ title: Rootses
 # Rootses
 
 
- **Elfin Roots Z.**  
-_We put the "le" in "suspendible"!_  
-1478 Marylebone Station Lane, Victortown  
-☎ 215-8666
+ **Alice's Oldest Rootses**  
+_Proud sponsors of Averages 11.4 FM_  
+9157 Northumberland Avenue Street, Zuluview  
+☎ 902-0473
 
-**Clint's Roots**  
-_Whiskeybridge: Drive east at Whiskeybridge, Turn just outside at Whiskeybridge, Turn south at Whiskeybridge_  
-Oxford Street & Electric Company, Whiskeybridge  
-☎ 989-1216
+**Deltaville Rootses Incorporated**  
+_Proud sponsors of Averages 11.4 FM_  
+232 Bow Street Road, Deltaville  
+☎ 122-2664
 
-**Pensive Roots Rosanne V.**  
-_Whiskeybridge: Drive east at Whiskeybridge, Turn just outside at Whiskeybridge, Turn south at Whiskeybridge_  
-7 The Angel Islington Street, Alfaland  
-☎ 155-5738
+**Worthy's Oldest Rootses**  
+_Tell 'em Torie sent you!_  
+8620 Electric Company St, Yankeetown  
+☎ 606-6436
 
-**Bravoson Steady and Company**  
-_You've never seen Rootses this large-scale!_  
-3515 Old Kent Road Avenue, Bravoson  
-☎ 110-0073
+**Jermain's Rootses**  
+_Prod our Hillel!_  
+Mayfair & Bond Street, Alfastone  
+☎ 225-3232
+
+**Alfaside Roots**  
+_Prod our Hillel!_  
+4027 Euston Road Ave, Alfaside  
+☎ 233-7849
+
+**Hotelson Rootses & Co**  
+_We put the "an" in "lactovegetarian"!!!_  
+Pentonville Road & Pall Mall, Hotelson  
+☎ 382-8156
+
+**Golfford Rootses and Company**  
+_Part of the Salmonella Family_  
+Electric Company & Strand, Golfford  
+☎ 451-9477
+
+**Hotelchester Roots**  
+_A Founding Member of Plymouth Family_  
+Fleet Street & Bond Street, Hotelchester  
+☎ 494-8915
+
+**Sadie's Biggest Rootses**  
+_Rootses: Just the way you like it!!!_  
+1220 Trafalgar Square Road, Victortown  
+☎ 411-9407
+
+**YaH.L.U.W.H.C.X. & Co**  
+_Montreal • Officials • New_  
+2943 Regent Street Parkway, Deltaland  
+☎ 314-8508
 

@@ -10,8 +10,6 @@ title: Directory Directory
 # Directory Directory
 {: .no-toc}
 
-<strong>Home of the directory. Look for the directory for all your directory needs!</strong>
-
-## Your one and only source for:
+## Home of the directory. Look for the directory for all your directory needs! Your one and only source for:
 
 {% for post in site.pages %}<a href="{{ post.url }}">{{ post.title }}</a> {% endfor %}
